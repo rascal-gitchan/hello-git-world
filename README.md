@@ -1,6 +1,14 @@
 # hello-git-world
 Hello github!!
 
-rascal here. I am interested in OS development.
-I've had a pizza on the Mars. I love pizza.
+I'm finding a job. if you are interested in me, plz email.
+
+MEOW 🐈
+i love cat.
+
+MEOW 🐈
+Umm cheetah is good.
+
+GRRR 🦁
+
 see you!!
