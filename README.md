@@ -1,7 +1,7 @@
 # hello-git-world
 Hello github!!
 
-I'm finding a job. if you are interested in me, plz email.
+I find a job. if you are interested in me, plz email.
 
 MEOW 🐈
 i love cat.
