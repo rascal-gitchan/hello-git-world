@@ -7,8 +7,7 @@ MEOW 🐈
 i love cat.
 
 MEOW 🐈
-Umm cheetah is good.
+cheetah is sooo cute.
 
-GRRR 🦁
 
 see you!!
